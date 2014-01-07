@@ -1,0 +1,1 @@
+# No code exercise, just a mental one.
